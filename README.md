@@ -1,5 +1,4 @@
 # Learn
 #Hi hello
 #DDDone
-Kal jy\
-Delhkdi
+Kal j
